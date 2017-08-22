@@ -1,12 +1,16 @@
-##RILEY PATTERSON
+## RILEY PATTERSON
 
 206.437.0215  
 rileyapatterson@gmail.com  
-5820 16th Ave NE, Seattle WA, 98105
+2143 N Northlake Way #59, Seattle WA, 98103
 
 **Work Experience**
 - - - 
-PROJECT COORDINATOR | Bluehawk Consulting – Bellevue, Washington | Oct 15 - Present  
+
+PROPERTY MANAGER | Airbnb - Seattle, Washington | Aug 17 - Present
+_Supplying professional property managment for my neighbors Airbnb property_
+
+PROJECT COORDINATOR | Bluehawk Consulting – Bellevue, Washington | Oct 15 - Mar 17  
 _Management consulting firm founded in 2011 specializing in strategic planning for companies across a range of industries._
 *	Project Management: Designed, implemented, and maintain key communications and marketing projects, including but not limited to the quarterly newsletter, the company-wide email signature redesign, and the company’s social media presence. 
 * Played a key role in developing and executing several employee engagement programs. Most notably including the employee anniversary recognition program and a yearly events calendar including social events as well as employee professional enrichment opportunities.
