@@ -7,8 +7,8 @@ rileyapatterson@gmail.com
 **Work Experience**
 - - - 
 
-PROPERTY MANAGER | Airbnb - Seattle, Washington | Aug 17 - Present
-_Supplying professional property managment for my neighbors Airbnb property_
+PROPERTY MANAGER | Airbnb - Seattle, Washington | Aug 17 - Present  
+_Supplying professional property managment for my neighbors Airbnb property._
 
 PROJECT COORDINATOR | Bluehawk Consulting – Bellevue, Washington | Oct 15 - Mar 17  
 _Management consulting firm founded in 2011 specializing in strategic planning for companies across a range of industries._
